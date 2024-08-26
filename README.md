@@ -1,1 +1,1 @@
-My name is Atharva, a high school student who is aiming to become a software engineer or aerospace engineer. Currently attempting to become a PCAP. Have a good day!
+My name is Atharva Jillhewar, a sophomore in high school  who is aiming to become a software/aerospace engineer. Experience in a multitude of languages. My Linkedin: https://www.linkedin.com/in/atharva-jillhewar-9a198a315/ .Have a good day!
